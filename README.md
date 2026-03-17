@@ -13,7 +13,7 @@ The conceptual aim is to explore synthetic identity, loss, emotional absence, an
 
 ### Official Links
 * **TikTok Archive:** [@amalia.capri](https://www.tiktok.com/@amalia.capri)
-* **Official Blog:** [amalia-capri.blug.hu](http://amalia-capri.blug.hu)
+* **Official Blog:** [amalia-capri.blog.hu](http://amalia-capri.blog.hu)
 * **Tumblr (English):** [@amaliacapri](https://www.tumblr.com/amaliacapri)
 
 ---
